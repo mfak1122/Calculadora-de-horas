@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="64six14Ed8D0slDJ8r11W0hHCSzZZGuIBQrfTsJuz68" />
 # Shadow Fight 2 Mod Apk
 
 Experience the ultimate fighting game on Android with **Shadow Fight 2 Mod Apk**. This modified version comes with enhanced features that let you enjoy the game with **unlimited coins**, gems, and an ad-free environment. Whether you’re a casual player or a hardcore fighter, this mod makes battles smoother, faster, and more enjoyable.
@@ -25,3 +26,4 @@ This mod is for educational and personal use only. Please respect the original g
 ---
 
 **Start your epic battles now with [Shadow Fight 2 Mod Apk](http://shadowfite2.com) and enjoy unlimited coins like never before!**
+
